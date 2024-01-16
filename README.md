@@ -3,4 +3,4 @@ Assignment
 
 Name : Prem Kumar Kamma
 
-video link: https://drive.google.com/drive/folders/14QICgVHl3mN3p775NNDZBjKyN-55LcN3
+video link: https://drive.google.com/file/d/1NeALzUxFtOyMgyTt9weCh382qcN1fVon/view?usp=drive_link
